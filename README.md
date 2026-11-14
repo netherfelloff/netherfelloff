@@ -3,7 +3,6 @@
 <p align="center">
 <img src="https://pbs.twimg.com/media/HRZBGfOaIAAbPXr?format=jpg" width: auto height="200">
 <img src="https://pbs.twimg.com/media/HRludhsbEAIINYg?format=jpg" width: auto height="200">
-<img src="https://file.garden/Z34Mk87HPFwMR6ho/xedFOx6FgZs-maxresdefault.jpg?format=jpg" width: auto height="200">
 </p>
 
 
