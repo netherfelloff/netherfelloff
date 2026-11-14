@@ -14,7 +14,10 @@
     <sub><strong>The knowledge just below my skin has made me never want to sing of something beautiful again</strong></sub>
   </p>
   <p align="center">
-    canid, 15. autistic & a system. I'm usually tabbed out!! I don't hear whispers either.. if I don't see your stuff feel free to contact me anywhere else.
+    canid, 15. autistic & a system. I'm usually tabbed out!! 
+  </p>
+  <p align="center">
+    C+H ok! If I don't see your whisper feel free to contact me anywhere else.
   </p>
 
 
